@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning computer science
 - 📫 How to reach me: valentina.storino@wsu.edu
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I'm from vegas!
+- ⚡ Fun fact: I'm from Vegas!
