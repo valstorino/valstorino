@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @valstorino
+- 👀 I’m interested in being successful in college while still finding time for fun!
+- 🌱 I’m currently learning computer science
+- 📫 How to reach me: valentina.storino@wsu.edu
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I'm from vegas!
